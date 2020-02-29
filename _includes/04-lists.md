@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* Gladiator
+* Scent of a woman
+* Meet Joe Black
+* The Great Gatsby
